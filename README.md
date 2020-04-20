@@ -1,0 +1,1 @@
+# fujikyota.github.io
